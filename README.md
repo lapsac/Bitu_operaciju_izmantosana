@@ -1,0 +1,1 @@
+# Bitu_operaciju_izmantosana
